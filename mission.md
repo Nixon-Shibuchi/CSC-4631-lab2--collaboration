@@ -1,4 +1,0 @@
-﻿# Team Leader
-Mission Statement: To be decided by team lead
-
-Team Lead Samuel Chibinji Mwanza says: Work hard and collaborate
