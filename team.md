@@ -1,1 +1,1 @@
-Team lead: Mambwe Chalwe 
+Team leads: Nixon Shibuchi & Mambwe Chalwe 
