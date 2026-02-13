@@ -1,2 +1,2 @@
-# Our Team Mission 
-- Team lead Kasonde says: Communicate and succeed! 
+"#Our Team Mission" 
+"-Team lead Kasonde Bbuku says: Work hard and collaborate" 
